@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:
   - 1 - Instagram -> Unknown.artist.2
-  - 2 - ON YouTube -> Indie
+  - 2 - YouTube -> Indie
 - ⚡ Fun fact: None Right Now
 
 <!---
